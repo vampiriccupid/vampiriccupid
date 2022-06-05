@@ -27,4 +27,4 @@ MARINA, mitski, arctic monkeys, the neighborhood, poppy, florence + the machine,
 
 DON’T TALK TO ME💥
 basic dni criteria, against neos/xenos, proshippers, mspec lesbian/gay supporters, 
-you like homestuck, danganronpa, dsmp, you partake in discourse a LOT and/or cause drama for the hell of it, we r on a funny pony game shut up, you traumadump...i'm not ur therapist and no one else on here is either 
+you like homestuck, danganronpa, dsmp, you partake in discourse a LOT and/or cause drama for the hell of it, we r on a funny pony game shut up, you traumadump...i'm not ur therapist and no one else on here is either, also pls don't rp w me
