@@ -12,6 +12,7 @@ dont be offended if i don't add you back i just . don't know you
 
 
 
+
 MUSIC 🪐
 MARINA, mitski, arctic monkeys, the neighborhood, poppy, florence + the machine, doja cat, mxmtoon, hozier, gorillaz, caro emerald, lucy woodward, auto heart, adore delano, kali uchis, addie hamilton, evanescence, ghost and pals, jhariah 
 
