@@ -19,7 +19,7 @@ life is strange:true colors, overwatch, ride the cyclone, apex legends, resident
 
 
 MUSIC 🪐
-MARINA, mitski, arctic monkeys, the neighborhood, poppy, florence + the machine, doja cat, mxmtoon, hozier, gorillaz, caro emerald, lucy woodward, auto heart, adore delano, kali uchis, addie hamilton, evanescence, ghost and pals
+MARINA, mitski, arctic monkeys, the neighborhood, poppy, florence + the machine, doja cat, mxmtoon, hozier, gorillaz, caro emerald, lucy woodward, auto heart, adore delano, kali uchis, addie hamilton, evanescence, ghost and pals, jhariah 
 
 
 
