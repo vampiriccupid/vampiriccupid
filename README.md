@@ -13,7 +13,7 @@ i have anxiety so it kinda freaks me out when ppl i don't know talk to me </3 so
 
 
 TALK TO ME ABOUT⚡️
-life is strange:true colors, overwatch, ride the cyclone, apex legends, resident evil 7+8, demon slayer, harley quinn the animated series, beastars, starkid, the witcher
+life is strange:true colors, overwatch, ride the cyclone, apex legends, resident evil 7+8, demon slayer, harley quinn the animated series + anything else harley quinn related, beastars, starkid, the witcher
 
 
 
