@@ -19,7 +19,6 @@ MARINA, mitski, arctic monkeys, the neighborhood, poppy, florence + the machine,
 
 
 TALK TO ME ABOUT 🦇
-
 ride the cyclone, apex legends, life is strange: true colors, overwatch, harley quinn animated series+anythin else harley quinn related, resident evil 7+8, beastars, demon slayer, astrology, studio ghibli movies, starkid, the witcher, the arcana, ace attorney, the arcana 
 
 
