@@ -1,5 +1,5 @@
  ME! 🌑
-cupid / callisto, vamp/bun/cat/she, 16, bisexual
+cupid / callisto, vamp/bun/cat/she, 16, syshost, bisexual
 
 WHERE TO FIND ME ⛅️
 i am usually hanging out in spawn, cafe, or with my lovely partner <3
