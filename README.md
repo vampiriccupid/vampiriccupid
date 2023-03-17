@@ -1,31 +1,26 @@
- ME! 🌑
-cupid / callisto, vamp/bun/cat/she, 16, syshost, bisexual
+ ME! 🩸
 
-WHERE TO FIND ME ⛅️
-i am usually hanging out in spawn, cafe, or with my lovely partner <3
+callisto / salem ༒, vamp / night / bat / hallow / vixen / cat / purr, 17, syshost, audhd, bisexual, poly taken x3 <3
 
 
-BYI 💫
-i have anxiety so it kinda freaks me out when ppl i don't know talk to me </3 so don't be surprised or hurt if i suddenly shut down a conversation/leave (especially if we don’t share interests and you randomly come up to me, i will most likely leave) its nothin personal against ya! i’m usually off tab so whisper if you need my attention, also, please try to not cover me! also also! i very rarely accept friend rq's from ppl i don't know so
-dont be offended if i don't add you back i just . don't know you
+WHERE TO FIND ME 🩸
+
+i am usually hanging out in spawn, cafe, or with my lovely partners <3
 
 
+BYI 🩸
+
+i prefer to talk to people who share interests w me, it makes it easier to talk to ya, other than that feel free to talk to me 
 
 
+MUSIC 🩸
 
-MUSIC 🪐
-MARINA, mitski, arctic monkeys, the neighborhood, poppy, florence + the machine, doja cat, mxmtoon, hozier, gorillaz, caro emerald, lucy woodward, auto heart, adore delano, kali uchis, addie hamilton, evanescence, ghost and pals, jhariah 
-
-
+GHOST, evanescene, the crane wives, mitski, hozier
 
 
-TALK TO ME ABOUT ⚡️
-ride the cyclone, spy x family, apex legends, life is strange: true colors, overwatch, harley quinn animated series+anythin else harley quinn related, resident evil 7+8, beastars, demon slayer, astrology, starkid, the witcher, the arcana, ace attorney, sucker for love
+TALK TO ME ABOUT 🩸
+
+TMA, WWDITS, ride the cyclone, WOW, spy x family, apex legends, life is strange: true colors, overwatch, harley quinn animated series+anythin else harley quinn related, resident evil 7+8, beastars, astrology, starkid, the witcher, the arcana, ace attorney, sucker for love 
 
 
-
-
-
-DON’T TALK TO ME💥
-basic dni criteria, against neos/xenos, proshippers, mspec lesbian/gay supporters, 
-you like homestuck, danganronpa, dsmp, you partake in discourse a LOT and/or cause drama for the hell of it, we r on a funny pony game shut up, you traumadump...i'm not ur therapist and no one else on here is either, also pls don't rp w me
+don't really have a dni, if i don't like you or i'm bored i'll just move away 
