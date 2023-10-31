@@ -1,6 +1,6 @@
  ME! 🩸
 
-callisto / salem ༒, vamp / night / bat / hallow / vixen / cat / purr, 17, syshost, audhd, bisexual, poly taken x3 <3
+callisto / salem ༒, vamp / night / bat / hallow / vixen / cat / purr, 17, syshost, audhd, bisexual, taken  <3
 
 
 WHERE TO FIND ME 🩸
