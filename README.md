@@ -1,11 +1,11 @@
  ME! 🩸
 
-callisto / salem ༒, vamp / night / bat / hallow / vixen / cat / purr, 17, syshost, audhd, bisexual, taken  <3
+ivy ༒, vamp / night / bat / hallow / vixen / cat / purr, 18, syshost, audhd, bisexual, taken  <3
 
 
 WHERE TO FIND ME 🩸
 
-i am usually hanging out in spawn, cafe, or with my lovely partners <3
+i am usually hanging out in spawn or cafe
 
 
 BYI 🩸
@@ -15,7 +15,7 @@ i prefer to talk to people who share interests w me, it makes it easier to talk 
 
 MUSIC 🩸
 
-GHOST, evanescene, the crane wives, mitski, hozier
+GHOST, evanesence, the crane wives, mitski, hozier
 
 
 TALK TO ME ABOUT 🩸
